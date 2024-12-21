@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kevin_buenfil061101@hotmail.com**
 
-- 📄 Know about my experiences [resume.link](resume.link)
+- 📄 Know about my experiences [My resume](https://github.com/Kevin-Buenfil-0611/CV-Kevin-Buenfil)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
